@@ -3,3 +3,7 @@
 
 I still think that running is a very good exercise for health
 as long as the air quality is not too bad.
+
+thus, I went out to run yesterday night.
+though It was litte rain, 
+the good air quality still left me feel good.
